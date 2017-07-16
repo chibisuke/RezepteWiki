@@ -1,1 +1,1 @@
-[Schokokuchen]
+[[Schokokuchen]]

@@ -1,3 +1,3 @@
 [[Schokokuchen]]  
 [[Pfannkuchen]]  
-[[Buchweizenbrötchen mit Backpulver]]  
+[[Buchweizenbrotchen mit Backpulver]]  
